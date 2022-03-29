@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Madison Beer
 - 🌱 I’m currently learning ... How to get Madison Beer to follow me on socials
 - 💞️ I’m looking to collaborate on ... Madison Beer's new song
-- 📫 How to reach me ... Mailbox
+- 📫 How to reach me ... Chloe 
 
 <!---
 ParleyGole/ParleyGole is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
